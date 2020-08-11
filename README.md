@@ -4,6 +4,7 @@
   - 😄 I'm open to collaborations/projects related to football and mental health.
   - 💬 Ask me anything about Messi, Football and Memes.
   - ⚡ I am always open to a game on PES and fantasy football :)
+  - Resume - https://docs.google.com/document/d/1KiXqeaE6WIZJP5VfG-12VIlOHux2NEq_WdRUxs8psWY/
   
   #### 📫 How to reach me:
   [<img src="https://img.icons8.com/color/48/000000/twitter.png" width="3.5%"/>](https://twitter.com/Ayushkothari11)
